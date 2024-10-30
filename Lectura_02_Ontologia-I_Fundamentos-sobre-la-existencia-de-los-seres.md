@@ -72,13 +72,19 @@ Finalmente, invito a todos ustedes, jóvenes estudiantes, a no solo conocer y pr
 - Bunge, M. (1977). *Tratado de filosofía: Ontología I - La mobiliaria del mundo*. Editorial Gedisa.
 - Deleuze, G., & Guattari, F. (1980). *Mil mesetas: Capitalismo y esquizofrenia*. Editorial Pre-Textos.
 - EZLN. (2018). Manifiesto: Por un mundo donde quepan muchos mundos. *Enlace Zapatista*. [url](http://enlacezapatista.ezln.org.mx/wp-content/uploads/2018/08/Manifiesto_Borrador-Final.pdf).
-- EZLN. (2005). Sexta Declaración de la Selva Lacandona. *Enlace Zapatista*. [url](https://enlacezapatista.ezln.org.mx/sdsl-es/)
+EZLN. (2005). Sexta Declaración de la Selva Lacandona. *Enlace Zapatista*. [url](https://enlacezapatista.ezln.org.mx/sdsl-es/)
 - Ferrater Mora, J. (1994). *Diccionario de filosofía*. Editorial Ariel.
 - Heidegger, M. (1996). *Ser y tiempo*. Editorial Trotta.
 - Lenkersdorf, C. (2005). *Los hombres verdaderos: Voces y testimonios tojolabales*. Siglo XXI Editores.
 - Sartre, J.-P. (1943). *El ser y la nada*. Editorial Losada.
 
+
 ---
 
 [^1]: Profesor-investigador del Departamento de Economía de la Universidad Autónoma Metropolitana, Unidad Iztapalapa. Contacto: [jzr@xanum.uam.mx](mailto:jzr@xanum.uam.mx), [Telegram](https://t.me/jzavalar).
 [^2]: Lectura leída el 30 de octubre de 2024.
+
+Tamaño en bytes: 17547
+Número de palabras: 2662
+
+Ultima actualización: 30 de octubre de 2024
