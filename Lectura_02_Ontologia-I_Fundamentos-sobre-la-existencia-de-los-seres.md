@@ -84,7 +84,7 @@ EZLN. (2005). Sexta Declaración de la Selva Lacandona. *Enlace Zapatista*. [url
 [^1]: Profesor-investigador del Departamento de Economía de la Universidad Autónoma Metropolitana, Unidad Iztapalapa. Contacto: [jzr@xanum.uam.mx](mailto:jzr@xanum.uam.mx), [Telegram](https://t.me/jzavalar).
 [^2]: Lectura leída el 30 de octubre de 2024.
 
-Tamaño en bytes: 17547
-Número de palabras: 2662
+Tamaño en bytes: 17547  
+Número de palabras: 2662  
 
 Ultima actualización: 30 de octubre de 2024
