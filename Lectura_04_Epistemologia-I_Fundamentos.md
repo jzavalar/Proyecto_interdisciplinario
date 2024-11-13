@@ -100,7 +100,7 @@ Finalmente, el conocimiento indígena también promueve una ética de responsabi
 
 En conclusión, el pluralismo epistemológico, al integrar conocimientos indígenas junto con epistemologías occidentales y otras formas de saber, no solo enriquece nuestra comprensión del mundo, sino que también promueve un modelo ético y equitativo de conocimiento. Este enfoque reconoce que cada sistema de conocimiento tiene su propio valor y propósito y que al combinar sus fortalezas en un diálogo abierto y respetuoso, se crea una epistemología inclusiva y global que refleja la verdadera diversidad de la experiencia y el saber humanos.
 
-### **6. La Interdisciplinariedad tiene Reglas**
+### **6. La interdisciplinariedad tiene reglas**
 
 La interdisciplinariedad es mucho más que la suma de diferentes disciplinas; se trata de una postura epistemológica que permite comprender y abordar problemas complejos desde una perspectiva amplia y diversa. En este enfoque, el pluralismo epistemológico y la apertura hacia diversos **marcos de referencia** resultan cruciales. Como sugiere Chanlat, la **interdisciplinariedad** "es una postura epistemológica y no una disciplina en sí" (2008, min. 90). Esta posición desafía la visión tradicional, donde cada disciplina se presenta cerrada y autosuficiente, limitando su capacidad de resolver problemas complejos que requieren de una integración de conocimientos. En cambio, la interdisciplinariedad facilita una *colaboración genuina entre campos de estudio*, fomentando una apertura y un diálogo que permiten encontrar soluciones más completas y contextuales.
 
